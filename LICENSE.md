@@ -1,4 +1,4 @@
-# 
+# Filmora for macOS exclusive Addon: voice-enhancement & real-time-effects offers the most advanced Filmora for macOS addon, with voice-enhancement and real-time-effects. Ideal for
 
 
 
